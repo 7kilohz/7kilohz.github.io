@@ -1,1 +1,1 @@
-# 7kilohz.github.io
+# thoughts.github.io
